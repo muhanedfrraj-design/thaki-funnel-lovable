@@ -1,0 +1,1 @@
+# thaki-funnel-lovable
